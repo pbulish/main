@@ -1,2 +1,2 @@
 # main
-niyoiyiaf hsi r
+ni shi wo de yi qie wo de quan bu
